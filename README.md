@@ -1,4 +1,4 @@
-<a href="https://discord.gg/shiba"><img src="https://i.imgur.com/z1oWSiy.png" width="100%" height="auto"/></a>
+<a href="https://cdn.oneesports.gg/cdn-data/2022/02/JujutsuKaisen0_SatoruGojo-1024x576.webp" width="100%" height="auto"/></a>
 <p align="center">
   <a href="https://twitter.com/MiaxuOfficial"><img width="32px" alt="Twitter" title="Twitter" src="https://i.imgur.com/OXZM1L6.png"/></a>
   &#8287;&#8287;&#8287;&#8287;&#8287;
